@@ -5,6 +5,6 @@
 - 📫 >_< I have Rabies!!!
 
 let me eat your head
-I hate light I well kill you if uh`README.md` (this file) appears on your GitHub profile.
-You can click the Preview link to take a look at your changes.
---->
+I hate light I well kill you if uh`README.md`
+I love to bite people :3
+sent help
