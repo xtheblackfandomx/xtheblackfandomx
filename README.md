@@ -5,6 +5,6 @@
 - 📫 >_< I have Rabies!!!
 
 let me eat your head
-I hate light I well kill you if uh`README.md`
+I hate light I well kill you if uh psst :3333
 I love to bite people :3
 sent help
