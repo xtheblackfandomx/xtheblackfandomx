@@ -1,2 +1,1 @@
-i love myself now :)
-gay .
+hii :3
